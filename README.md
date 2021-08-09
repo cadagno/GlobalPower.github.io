@@ -1,0 +1,1 @@
+# GlobalPower.github.io
